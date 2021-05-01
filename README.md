@@ -1,1 +1,1 @@
-TA Menuju Skripsi 2000An
+TA Menuju Skripsi tahun 2002
